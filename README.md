@@ -1,0 +1,1 @@
+Copyright - Mr. Illia Shokoto
